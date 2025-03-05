@@ -2,7 +2,7 @@
 
 These candied carrots are easy to make for a delicious side dish for ham, roast beef, or chicken.
 
-Source: https://www.allrecipes.com/recipe/228654/quick-oatmeal-pancakes/
+Source: https://www.allrecipes.com/recipe/18241/candied-carrots/
 
 ## Ingredients
 
